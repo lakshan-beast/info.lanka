@@ -1,2 +1,2 @@
 # info.lanka
-Sri lanka Services &amp; Information Directory
+Sri Lanka Services &amp; Information Directory
